@@ -1,1 +1,1 @@
-Neon Rush is a fun game. Tab on the screen to jump
+Geometry Diddler is a fun game. Tab on the screen to jump
